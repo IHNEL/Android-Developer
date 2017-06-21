@@ -4,3 +4,6 @@ Mình cần 2 Android Developer làm việc từ xa, không cần đến văn ph
 Yêu câu có ít nhất 1 năm kinh nghiệm viết ứng dụng cho Android, có khả năng làm việc độc lập và tự giác.
 Lương thoả thuận.
 
+CV gửi tới email: nmbinh87@gmail.com
+
+Cám ơn các bạn.
